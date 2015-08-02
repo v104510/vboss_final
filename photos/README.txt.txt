@@ -1,0 +1,1 @@
+This Folder is created to place all the JPG photos of the Team members
